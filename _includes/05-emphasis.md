@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+Some amazing things about me are that I love to *read* and *write* but most importantly, I **enjoy** making people *laugh*
